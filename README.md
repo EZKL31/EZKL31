@@ -1,4 +1,4 @@
-## Hola, me llamo Joseph👋
+## Hola, me llamo Ezequiel👋
  
 ## Sobre mí
 
